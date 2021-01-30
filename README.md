@@ -1,1 +1,0 @@
-# Schema_Sistemi_e_Reti_Iqe6myi
